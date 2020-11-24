@@ -1,0 +1,1 @@
+Jona, este ejercicio lo descargué de slack. Sé que eliminé y agregué algunas cosas pero no recuerdo cuales. Lo hice para probar los códigos para ver cómo funcionaba.
